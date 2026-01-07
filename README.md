@@ -1,0 +1,1 @@
+สวัสดี ฉัน CEO EMPERICH
